@@ -14,3 +14,9 @@ So the people found it funny to poimt put the _cringeness_ of the movies.
 
 And if my ***bias*** hasn't given it away already, i think it's a shame. Because of this, the only way to be vocal about liking twilight, is  meaning it ironically.
 Ofcourse i do not know how socially acceptable it was to like Twilight back in `2008`, but i can assure you, it ~~barely is~~ isn't now.
+
+
+
+
+Um einen Text  ***fett*** darzustellen, schreiben sie `***fett***`
+Um einen Text als `Code` darzustellen. schreiben sie 
