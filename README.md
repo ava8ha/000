@@ -1,5 +1,5 @@
 # "Where The Hell Have You Been Loca"
-This (in)famous line has been dragged to hell and back by more people than just *twilight-fanatics*. Some even consider it a cultural reset.
+This (in)famous line has been dragged to hell and back by more people than just  *twilight-fanatics*. Some even consider it a cultural reset.
 
 #### _Let's talk about it_
 
@@ -13,4 +13,4 @@ Now, with the inevitable comeback of this classic, there will be new memes and q
 So the people found it funny to poimt put the _cringeness_ of the movies.
 
 And if my bias hasn't given it awy already, i think it's a shame. Because of this, the only way to be vocal about liking twilight, is saying you mean it ironically.
-Ofcourse i do not know how socially acceptable it was to like Twilight back in 2008, but i can assure you, it barely is now.
+Ofcourse i do not know how socially acceptable it was to like Twilight back in 2008, but i can assure you, it ~~barely is~~ isn't now.
